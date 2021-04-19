@@ -1,1 +1,0 @@
-# Amarelinha-Inteligente
